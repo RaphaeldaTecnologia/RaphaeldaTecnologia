@@ -66,7 +66,7 @@ Construir uma carreira sólida em Engenharia de Software, Desenvolvimento Web ou
 ## 📫 Contato
 
 🔗 GitHub: https://github.com/RaphaeldaTecnologia  
-🔗 LinkedIn: (adicione seu link aqui)
+🔗 LinkedIn: (https://www.linkedin.com/in/raphael-rodrigues-silva-aa0335355/)
 
 ---
 

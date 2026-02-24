@@ -57,8 +57,6 @@ Possuo uma base em diferentes áreas da computação e estou em constante desenv
 
 ## 🎯 Objetivo
 
-## 🎯 Objetivo
-
 Construir uma carreira sólida em Engenharia de Software, Desenvolvimento Web ou áreas afins, atuando com responsabilidade, boas práticas e aprendizado contínuo.
 
 ---
